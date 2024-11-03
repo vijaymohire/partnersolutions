@@ -1,0 +1,1 @@
+Intel partner solutions
